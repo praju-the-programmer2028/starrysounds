@@ -1,4 +1,4 @@
-# 🌌 Starry Sounds
+# Starry Sounds
 
 ## My Work
 
